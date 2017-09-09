@@ -19,4 +19,11 @@ changing the world.
 
 Question 2
 
-If I am accepted into the program, I see myself 
+If I am accepted into the program, I see myself confidentally sharing ideas, and solutions to a team of people who are working on projects
+aimed to help people's lives. I see myself working on projects related to art as well because art and science are not two completely
+different things. The importance of both in people's lives is grand. I went to Chicago Public Schools my whole life. Art was always one 
+of my favorite classes. However, in the past few years the government had taken away a lot of the funding for art programs. Art and 
+science are important, and you don't have to pick one or the other. For so long I believed I had to either be an artist or be a business
+person or engineer, but it does not have to be that way. I can choose to learn more, to be a part of things that I never thought were for 
+me. In five years, I want my family and the people from my city to know that there are endless poissibilities and also resources and 
+people who care about both art and science. 
