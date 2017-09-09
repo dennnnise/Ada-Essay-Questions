@@ -12,7 +12,11 @@ about Ada’s vision, and watching videos from people who have gone through the 
 in me. I am interested in programming because of the possibility of a career that is challenging, fulfilling, and can one day help me 
 support more than myself. And one day I hope to combine my love for art and creativity with programming.
 
-I have exposed myself to programming by taking advantage of any free trial on Codeacademy, Treehouse, and Skillcrush. I also look up
-Youtube videos on coding to discover resources and learning techniques that people use to learn languages. Apart from that, reading
-articles about women in software engineering keeps me motivated.  There are risks, and challenges, but they’re changing the world. 
+I have exposed myself to programming by taking advantage of any free trials offered by differentresources like Codeacademy, Treehouse, and
+Skillcrush. I also look up Youtube videos on coding to discover resources and learning techniques that people use to learn languages.
+Apart from that, reading articles about women in software engineering keeps me motivated.  There are risks, and challenges, but they’re
+changing the world. 
 
+Question 2
+
+If I am accepted into the program, I see myself 
