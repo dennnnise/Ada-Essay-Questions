@@ -3,7 +3,7 @@
 
 Question 1  
 
-##### Programming is something that I thought I could never do. I never considered myself capable of making a career 
+  Programming is something that I thought I could never do. I never considered myself capable of making a career 
 in STEM—that was meant for the smartest people.  However, for the last few months I have had a yearning to learn more, to challenge 
 myself, believing that I am capable and that there is a place for me. I am naturally a shy person, and sometimes have trouble speaking up. 
 A lot of the times I turn to art for truth, and validation for who I am. In the same way, learning how to code is empowering because even 
