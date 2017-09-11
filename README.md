@@ -37,15 +37,25 @@ who care about both art and science.
 
 Question 3
 
-Sometimes I wake up in the morning wanting to crawl into a hole of deep saddness for everything that is happening in the world. Everything
-from natural disasters, DACA (Deferred Action for Childhood Arrivals) being threatened, the acts of violenece towards people of 
-color that happen every day, racism, and more-- it all makes it easy for me to feel pessimistic about the world. It makes it hard for
-me to dream of a better place because the United States of America has not been a great place for many people. But at the same time,
-people waking up every morning to go to work to feed their families, the people who risk their lives and safety for their loved ones or
-for themselves give strength and give me hope. My parents are immigrants from Mexico, and I feel a sense of responisbilty to care for 
-them. I feel a sense of responsibilty to make them proud and take advantage of the opportunities that I have to have a voice in places 
-that are not "meant" for me. I want to be able to work on projects that are designed by mainly white males because a lot of technology is 
-used by people who do not fit that category. 
+There are times when I wake up in the morning wanting to crawl into a hole of deep saddness for everything that is happening in the world. 
+Everything from natural disasters, DACA (Deferred Action for Childhood Arrivals) being threatened, the acts of violenece towards people of 
+color that happen every day, racism, and more--it all makes it easy for me to feel pessimistic about the world. It makes it hard for
+me to dream of a better place because the United States of America has not been a great place for many people. But at the same time, 
+organizations like Ada working to make spaces more inclusive, and making it possible for people to achieve their desires give me a lot 
+of hope and strength. Reading Ada's mission statement encouraged me to step out of my comfort zone, and I will contribute to it by 
+remaining open to learning and working with people that are different than me.
+
+
+Another way that I will contribute to Ada's mission statement is by learning new skillsets that will enable me to have a voice in Tech, 
+which is mostly made up of white males. There needs to be diversity in Tech because the people who use the techonology are diverse. 
+Actually, I am recently inspired by Fenty Beauty by Rihanna. She created a collection of beauty products for all 
+different shades and personalities. Her ad campaign is made up of models that are diverse in attitude and skin color. A woman of color 
+made beauty prooducts for women of color. There needs to be more of that in the Tech industry as well, where people of color are also 
+contributing to projects that will be used by humans of all different bakcgrounds.  
+
+My parents are immigrants from Mexico, and I feel a sense of responisbilty to care for them. I feel a sense of responsibilty to make them 
+proud and take advantage of the opportunities that allow me to have a voice in places that are not "meant" for me. Ada's mission 
+statement gives me confidence in that hope. I want to be able to provide for my family. 
 
 Question 4 
 There are a lot of mistakes that I have made, especially the ones I took before entering college and during my first couple of years. I have always been a shy person and sometimes that holds me back. Before applying to college, I was not sure I wanted to go. I was always a good student and felt like that was the path I should take. It would make my educators and family proud, but if I were to do it again, I would look for mentors, and take advantage of resources. If I could speak to my younger self, I would say to believe that I can. I would tell myself to dream big. I have made the mistake of 
