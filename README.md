@@ -20,7 +20,7 @@ critically, and can tackle problems.
 I have exposed myself to programming by taking advantage of any free trials offered by sources like Codeacademy, Treehouse, 
 and Skillcrush. I also look up Youtube videos on coding to discover resources and learning techniques that people use to learn languages.
 Apart from that, reading articles about women in software engineering keeps me motivated.  There are a lot of risks and challenges 
-that people who change careers take, but they're making a better world by representing people who are not 
+that people who change careers take, but they're making a better world. 
 
 Question 2
 
@@ -47,15 +47,28 @@ remaining open to learning and working with people that are different than me.
 
 
 Another way that I will contribute to Ada's mission statement is by learning new skillsets that will enable me to have a voice in Tech, 
-which is mostly made up of white males. There needs to be diversity in Tech because the people who use the techonology are diverse. 
+which is mostly made up of white males. There needs to be diversity in Tech because the people who use techonology are diverse. 
 Actually, I am recently inspired by Fenty Beauty by Rihanna. She created a collection of beauty products for all 
 different shades and personalities. Her ad campaign is made up of models that are diverse in attitude and skin color. A woman of color 
 made beauty prooducts for women of color. There needs to be more of that in the Tech industry as well, where people of color are also 
 contributing to projects that will be used by humans of all different bakcgrounds.  
 
 My parents are immigrants from Mexico, and I feel a sense of responisbilty to care for them. I feel a sense of responsibilty to make them 
-proud and take advantage of the opportunities that allow me to have a voice in places that are not "meant" for me. Ada's mission 
-statement gives me confidence in that hope. I want to be able to provide for my family. 
+proud and take advantage of the opportunities this country gives me. I want to be able to provide for them the same way they have for me. 
+And Ada's mission statement gives me confidence in that hope. Ada makes me believe that I can be a part of a field that will allow me to 
+do that, and it would not be fair to myself to pass up the opportunity to apply. 
 
 Question 4 
-There are a lot of mistakes that I have made, especially the ones I took before entering college and during my first couple of years. I have always been a shy person and sometimes that holds me back. Before applying to college, I was not sure I wanted to go. I was always a good student and felt like that was the path I should take. It would make my educators and family proud, but if I were to do it again, I would look for mentors, and take advantage of resources. If I could speak to my younger self, I would say to believe that I can. I would tell myself to dream big. I have made the mistake of 
+
+There are a lot of mistakes that I have made, especially the ones I took during my first couple of years of college. Being a timid 
+person has been difficult because of the fact that it takes a lot from me to speak up. However, if I were to start something completely
+new like college again, I would tell myself that it is okay to ask for help. If I were to talk to my younger self, I would say that 
+there are people willing to help. I suffered a lot from anxiety my first couple of years of college but I was always too afraid to tell 
+anyone, to the point that it affected my performance in school. I would tell myself that it is okay to push myself in incraments, that I 
+do not have to be a completely different person in one day. I would tell myself that it is okay to struggle, and that being shy or 
+different does not make me less worthy of a good life/good education. I would take advantage of resources and look for a community that
+is caring. Not speaking up has been a mistake that I have made not only once, but several times. It is also one that I am constantly 
+learning from. I have learned to trust myself and my abilities. I have also learned to listen to what others have to say, and to consider 
+their words honestly and critically. People have a lot to offer. 
+
+
