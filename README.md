@@ -26,12 +26,14 @@ Question 2
 
 If I am accepted into the program, I see myself confidentally sharing ideas, and solutions to a team that is working on projects
 aimed to be accesible for all. Equally important, I see myself working on projects related to art. I went to Chicago Public Schools my 
-whole life, and Art was always one of my favorite classes. However, in the past few years the government has taken away a lot of the
-funding for art programs. But I believe in the power of science and art and math and reading; these areas intersect, and they are 
-important. In five years, I see myself working with educators and people working For so long 
-I believed I had to either be an artist or be a business person or engineer, but it does not have to be that way. I can choose to learn 
-more, to be a part of things that I never thought were for me. In five years, I want my family and the people from my city to know that 
-there are endless poissibilities and also resources and people who care about both art and science. 
+whole life, and Art was always one of my favorite classes. I expressed myself freely and was encouraged to explore ideas. However, in the 
+past few years the government has taken away a lot of funding for art programs. However, I believe in the power of science, art, math 
+and reading; these areas intersect, and they are important. In five years, I see myself working with educators and programmers to create 
+technology  that allows students to learn about different subjects areas. I want to help students who are "othered" to believe in 
+themselves and to encourage them to explore their interests. Growning up I believed I had to either be an artist or be a business person, 
+but a lot of things intersect. One can choose to learn more, and to be a part of things that you never thought were for you. In 
+five years, I want my family and the people from my city to know that there are endless poissibilities and also resources for people 
+who care about both art and science. 
 
 Question 3
 
