@@ -10,11 +10,11 @@ Although I am naturally a shy person, and sometimes have trouble speaking up, th
 photography, gives me in a voice. And in the same way, learning code will enable me to have a bolder voice, and to be able to tell myself 
 that I can dream big. 
 
-For too long I had been afraid of tackling science or math, sometimes even english because I thought I was not smart enough. But this past 
+For too long I had been afraid of tackling science or math, sometimes even English because I thought I was not smart enough. But this past 
 year I have found confidence in my passion to do more for my family, myself, and the world. I am a creative being, and I am realizing that
 it does not mean that I have to follow a certain path to be a "true artist." I can expand my knowledge and challenge myself in areas like
 technology, where people are also changing the world. Programming needs voices like ours--women who did not necessarily grow up with elite
-education, or homes where fields in techonogoly and science were valued, but women who have knowledge of the world, who can think 
+education, or homes where fields in technologoly and science were valued, but women who have knowledge of the world, who can think 
 critically, and can tackle problems.  
 
 I have exposed myself to programming by taking advantage of any free trials offered by sources like Codeacademy, Treehouse, 
@@ -24,15 +24,15 @@ that people who change careers take, but they're making a better world.
 
 Question 2
 
-If I am accepted into the program, I see myself confidentally sharing ideas, and solutions to a team that is working on projects
-aimed to be accesible for all. Equally important, I see myself working on projects related to art. I went to Chicago Public Schools my 
+If I am accepted into the program, I see myself confidently sharing ideas, and solutions to a team that is working on projects
+aimed to be accessible for all. Equally important, I see myself working on projects related to art. I went to Chicago Public Schools my 
 whole life, and Art was always one of my favorite classes. I expressed myself freely and was encouraged to explore ideas. However, in the 
 past few years the government has taken away a lot of funding for art programs. However, I believe in the power of science, art, math 
 and reading; these areas intersect, and they are important. In five years, I see myself working with educators and programmers to create 
 technology  that allows students to learn about different subjects areas. I want to help students who are "othered" to believe in 
-themselves and to encourage them to explore their interests. Growning up I believed I had to either be an artist or be a business person, 
+themselves and to encourage them to explore their interests. Growing up I believed I had to either be an artist or be a business person, 
 but a lot of things intersect. One can choose to learn more, and to be a part of things that you never thought were for you. In 
-five years, I want my family and the people from my city to know that there are endless poissibilities and also resources for people 
+five years, I want my family and the people from my city to know that there are endless possibilities and also resources for people 
 who care about both art and science. 
 
 Question 3
@@ -46,11 +46,11 @@ of hope and strength. Reading Ada's mission statement encouraged me to step out 
 remaining open to learning and working with people that are different than me.
 
 
-Another way that I will contribute to Ada's mission statement is by learning new skillsets that will enable me to have a voice in Tech, 
+Another way that I will contribute to Ada's mission statement is by learning new skill sets that will enable me to have a voice in Tech, 
 which is mostly made up of white males. There needs to be diversity in Tech because the people who use techonology are diverse. 
 Actually, I am recently inspired by Fenty Beauty by Rihanna. She created a collection of beauty products for all 
 different shades and personalities. Her ad campaign is made up of models that are diverse in attitude and skin color. A woman of color 
-made beauty prooducts for women of color. There needs to be more of that in the Tech industry as well, where people of color are also 
+made beauty products for women of color. There needs to be more of that in the Tech industry as well, where people of color are also 
 contributing to projects that will be used by humans of all different bakcgrounds.  
 
 My parents are immigrants from Mexico, and I feel a sense of responisbilty to care for them. I feel a sense of responsibilty to make them 
@@ -64,11 +64,11 @@ There are a lot of mistakes that I have made, especially the ones I took during 
 person has been difficult because of the fact that it takes a lot from me to speak up. However, if I were to start something completely
 new like college again, I would tell myself that it is okay to ask for help. If I were to talk to my younger self, I would say that 
 there are people willing to help. I suffered a lot from anxiety my first couple of years of college but I was always too afraid to tell 
-anyone, to the point that it affected my performance in school. I would tell myself that it is okay to push myself in incraments, that I 
+anyone, to the point that it affected my performance in school. I would tell myself that it is okay to push myself in increments, that I 
 do not have to be a completely different person in one day. I would tell myself that it is okay to struggle, and that being shy or 
 different does not make me less worthy of a good life/good education. I would take advantage of resources and look for a community that
 is caring. Not speaking up has been a mistake that I have made not only once, but several times. It is also one that I am constantly 
-learning from. I have learned to trust myself and my abilities. I have also learned to listen to what others have to say, and to consider 
+learning from. I have learned to trust my abilities. I have also learned to listen to what others have to say, and to consider 
 their words honestly and critically. People have a lot to offer. 
 
 
